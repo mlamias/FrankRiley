@@ -1,6 +1,7 @@
 # FrankRiley
 **Frank J. Riley, Inventor of Cruise Control**
 **Times-Herald Newport News Virgina Saturday, Sept. 19, 1970 "CWO Riley Has Enjoyed Varied Career" Page 9 and Page 10.**
+Scanned image of original newspaper article appears in this repository as "Frank Riley - CWo Riley Has Enjoyed Varied Career.pdf"
 
 CWO Riley Has Enjoyed Varied Career Virginia Biggins, Times-Herald Staff Writer. CWO (W4) Frank J. Riley of Langley Air Force Base has been in military service about 30 years, yet he's never been to war nor has he ever fired a shot in anger. 
 
